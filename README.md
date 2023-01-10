@@ -1,8 +1,8 @@
 # wonderer-osu-skins
 osu skins
 
-if you are searching for other skins dm me on osu/discord
-wonderer#8685
+if you are searching for other skins dm me on osu/twitter
+[wonderer#8685](https://twitter.com/shuunohazama)
 
 prepare for an insane amount of rafis/varvalian edits :DDDDDDDDDDD
 
@@ -202,7 +202,7 @@ go check these out
 ![](https://osu.ppy.sh/ss/18177692/8436)
 
 # [coven] dm me on twitter
-![preview](https://youtu.be/d2G8lFWuAWI)
+[preview](https://youtu.be/d2G8lFWuAWI)
 
 # [cookiezi](https://shigeskln.s-ul.eu/aZMjYmod)
 ![](https://camo.githubusercontent.com/73201d244e4b98509c57e071326a3c4c427e6f8290b54f6c2a76fdee7d766a46/68747470733a2f2f692e696d6775722e636f6d2f57704c79504d6e2e706e67)
