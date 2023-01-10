@@ -201,7 +201,7 @@ go check these out
 # [cinnamoroll](https://b.catgirlsare.sexy/wJwOjbtBLbY8.osk)
 ![](https://osu.ppy.sh/ss/18177692/8436)
 
-# [coven] dm me on twitter
+# COVEN OSU SKIN (dm me on twitter for the link)
 [preview](https://youtu.be/d2G8lFWuAWI)
 
 # [cookiezi](https://shigeskln.s-ul.eu/aZMjYmod)
