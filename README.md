@@ -2,7 +2,7 @@
 osu skins
 
 if you are searching for other skins dm me on osu/twitter
-[wonderer#8685](https://twitter.com/shuunohazama)
+https://twitter.com/shuunohazama
 
 prepare for an insane amount of rafis/varvalian edits :DDDDDDDDDDD
 
